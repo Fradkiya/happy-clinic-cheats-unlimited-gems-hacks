@@ -1,2 +1,5 @@
-# happy-clinic-cheats-unlimited-gems-hacks
-Happy Clinic Cheats unlimited money and gems Hacks tutorial
+# Happy Clinic Cheats unlimited money and gems Hacks tutorial
+
+Happy Clinic Cheats unlimited money and gems Hacks tutorial - Please note that after unlocking a new city, your total coin purchase will be reset, so you can start with an empty clinic, where there are only enough beds and doctors to handle only a few patients a day. Over time, new cities will increase. Back at the research center, you can use any star you collect to buy new rooms and features. The director of the center offered two options. He also happened to be the nurse's grandfather. A star is usually required to install these devices. Some of these options are as follows: before installation, you can choose two variants of the selected upgrade, but if you like, you can switch them to the unused option, although you need to pay a coin fee. This will also affect additional doctors. Although you can't change doctors at will, the differences they list are purely aesthetic.
+
+<a href="https://windmod.icu/happy-clinic/">view here</a>
